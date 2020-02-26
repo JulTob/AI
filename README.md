@@ -1,0 +1,2 @@
+# AI
+🧠 Artifitial Inteligence 🤖
